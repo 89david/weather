@@ -1,3 +1,3 @@
-# MOBLIART
-## somos fabricantes 
-### los elaboramos a su medida 
+#  DEDICATE 
+## es para ti 
+### aprende otro idioma 
